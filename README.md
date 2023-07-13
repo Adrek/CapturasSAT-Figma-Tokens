@@ -1,0 +1,1 @@
+# CapturasSAT-Figma-Tokens
